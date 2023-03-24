@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Jens from @lieto-dk
 - 👀 I’m interested in travel and travel related sites
-- 🌱 I’m still learning everything
+- 🌱 I’m still learning everything and nothing
 - 💞️ I’m not looking to collaborate at the moment ...
 - 📫 reach me at jens dot lieto dot dk ... 
 
